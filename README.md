@@ -11,12 +11,8 @@
 <p align="left">
  <img src="https://media.discordapp.net/attachments/1451762846307455119/1451799111010488332/Untitled96.png?ex=69477cc9&is=69462b49&hm=19b74be86b1668d5c6bfd857da1aca651902835c1a1f46aa0a1fd6930b9f6a9c&=&format=webp&quality=lossless&width=752&height=544" width="600" />   
   </p>
-<p>
- <a href="https://theallblue.straw.page/"> " The All Blue " [Strawpage 1] </a> 
-  </p> 
-<p> 
- <a href="https://godvalley.straw.page/"> " God Valley " [Strawpage 2] </a>
-  </p>
+
+  》[〖Strawpage1〗](https://theallblue.straw.page/) // [〖Strawpage2〗](https://godvalley.straw.page/) // [〖Atabook〗](https://banjo.atabook.org/) // [〖Pronouns page〗](https://en.pronouns.page/@BanjoSanjo) //〖[Commissions](https://vgen.co/BanjoSanjo) [Page](https://vgen.co/BanjoSanjo) //《
  
 <sub> Both strawpages are basically the same and carry the same info just different themes, you can use either or.</sub>
 </p>
